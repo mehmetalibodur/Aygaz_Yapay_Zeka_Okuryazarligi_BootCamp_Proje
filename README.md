@@ -1,0 +1,1 @@
+# Aygaz_Yapay_Zeka_Okuryazarligi_BootCamp_Proje
